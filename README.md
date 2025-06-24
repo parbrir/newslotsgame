@@ -6,11 +6,12 @@
 
 В данной статье мы подробно разберем основные тенденции в мире видеослотов, рассмотрим ключевые особенности новинок и представим таблицу с актуальными релизами ведущих провайдеров.
 
-1. **[ARKADA CASINO](https://clck.ru/3Hr27o "ARKADA CASINO")**
-2. **[R7 CASINO](https://clck.ru/3HsT58 "R7 CASINO")**
-3. **[KOMETA CASINO](https://clck.ru/3JHf2X "KOMETA CASINO")**
-4. **[CAT CASINO](https://clck.ru/3HsTGi "CAT CASINO")**
-5. **[DADDY CASINO](https://clck.ru/3HsTSj "DADDY CASINO")**
+1. **[ARKADA CASINO](https://clck.ru/3Hr27o "ARKADA CASINO")** (🎁 Бонус 150% + 2000FS)
+2. **[R7 CASINO](https://clck.ru/3HsT58 "R7 CASINO")** (🎁 Бонус 50% + 50FS)
+3. **[KENT CASINO](https://clck.ru/3MmjWQ "KENT CASINO")** (🎁 Бонус 125% + 100FS)
+4. **[KOMETA CASINO](https://clck.ru/3JHf2X "KOMETA CASINO")** (🎁 Бонус 255% + 500FS)
+5. **[CAT CASINO](https://clck.ru/3HsTGi "CAT CASINO")** (🎁 Бонус 75% + 50FS)
+6. **[DADDY CASINO](https://clck.ru/3HsTSj "DADDY CASINO")** (🎁 Бонус 100% + 100FS)
 
 ## Основные тенденции в индустрии слотов
 
